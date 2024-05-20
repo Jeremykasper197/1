@@ -1,1 +1,1 @@
-The Great Depression of the late 19th century, triggered by financial panics and economic downturns, led to widespread unemployment, business failures, and social unrest in many countries.
+The Atlantic slave trade flourished in the 17th century, with millions of Africans forcibly transported to the Americas to work on plantations, mines, and other labor-intensive industries.
