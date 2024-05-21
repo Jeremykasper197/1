@@ -1,1 +1,1 @@
-The Atlantic slave trade flourished in the 17th century, with millions of Africans forcibly transported to the Americas to work on plantations, mines, and other labor-intensive industries.
+The rise of coffeehouses and salons in Europe during the 18th century provided spaces for intellectual exchange, networking, and business transactions, influencing economic and cultural trends.
