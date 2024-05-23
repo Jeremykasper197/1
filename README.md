@@ -1,1 +1,1 @@
-The construction of railways in the 19th century revolutionized transportation, facilitating the movement of goods, people, and ideas across vast distances and spurring economic development.
+The rise of cottage industries and early forms of industrialization in Europe during the 17th century laid the groundwork for the Industrial Revolution of the 18th and 19th centuries.
