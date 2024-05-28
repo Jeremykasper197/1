@@ -1,1 +1,1 @@
-The Navigation Acts in Britain during the 18th century aimed to restrict colonial trade and maximize profits for British merchants and shipowners, shaping the economic relationship between Britain and its colonies.
+The Bank of England, founded in 1694, became a central institution in the British economy, issuing currency, managing government debt, and facilitating commercial banking operations.
