@@ -1,1 +1,1 @@
-The global economy of the 19th century was increasingly interconnected through trade networks, financial markets, and the exchange of goods, capital, and labor across borders.
+The Enclosure Acts in Britain during the 18th century led to the privatization of common lands, forcing many peasants off the land and into wage labor in burgeoning industries.
