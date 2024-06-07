@@ -1,1 +1,1 @@
-The transatlantic slave trade, which had been abolished by many European countries by the early 19th century, was replaced by the system of indentured labor, particularly in the British Empire's colonies.
+The 18th century saw the emergence of the Industrial Revolution, beginning in Britain and later spreading to other parts of Europe and the world, leading to profound changes in economic production and society.
