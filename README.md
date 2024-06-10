@@ -1,1 +1,1 @@
-The rise of protectionism in the 19th century, including tariffs, quotas, and trade barriers, aimed to protect domestic industries from foreign competition but also led to trade conflicts and economic tensions between nations.
+The rise of multinational corporations in the 19th century, such as Standard Oil, Carnegie Steel, and the British East India Company, wielded significant economic and political influence on a global scale.
