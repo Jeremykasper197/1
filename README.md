@@ -1,1 +1,1 @@
-The rise of multinational corporations in the 19th century, such as Standard Oil, Carnegie Steel, and the British East India Company, wielded significant economic and political influence on a global scale.
+The expansion of international trade in the 19th century was facilitated by innovations in transportation, including steamships, railways, and canals, which reduced costs and increased efficiency.
