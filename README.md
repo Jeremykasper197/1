@@ -1,1 +1,1 @@
-The 18th century saw the emergence of the Industrial Revolution, beginning in Britain and later spreading to other parts of Europe and the world, leading to profound changes in economic production and society.
+The rise of protectionism in the 19th century, including tariffs, quotas, and trade barriers, aimed to protect domestic industries from foreign competition but also led to trade conflicts and economic tensions between nations.
