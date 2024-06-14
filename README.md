@@ -1,1 +1,1 @@
-The rise of protectionism in the 19th century, including tariffs, quotas, and trade barriers, aimed to protect domestic industries from foreign competition but also led to trade conflicts and economic tensions between nations.
+Silver played a crucial role in the global economy of the 17th century, with vast quantities of silver mined in Spanish colonies in the Americas and traded extensively in global markets.
