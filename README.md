@@ -1,1 +1,1 @@
-The 17th century saw the rise of mercantilism, an economic theory that emphasized national wealth accumulation through exports and colonial expansion.
+The rise of imperialism in the 19th century was driven by economic motives, including the search for raw materials, markets, and investment opportunities in overseas territories.
