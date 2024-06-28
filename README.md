@@ -1,1 +1,1 @@
-The rise of imperialism in the 19th century was driven by economic motives, including the search for raw materials, markets, and investment opportunities in overseas territories.
+The rise of coffeehouses and salons in Europe during the 18th century provided spaces for intellectual exchange, networking, and business transactions, influencing economic and cultural trends.
