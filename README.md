@@ -1,1 +1,1 @@
-The transatlantic slave trade, which had been abolished by many European countries by the early 19th century, was replaced by the system of indentured labor, particularly in the British Empire's colonies.
+The rise of joint-stock companies and stock exchanges in the 17th century facilitated investment in overseas ventures and helped finance colonial expansion and trade.
