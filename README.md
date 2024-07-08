@@ -1,1 +1,1 @@
-The global economy of the 19th century was characterized by the expansion of colonial empires, with European powers competing for territorial control, resources, and markets in Africa, Asia, and the Americas.
+The economic theories of mercantilism dominated European economic thought in the 17th century, advocating for state intervention in the economy to promote national wealth and power.
