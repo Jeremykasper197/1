@@ -1,1 +1,1 @@
-The Industrial Revolution led to the rise of factory-based production, the mechanization of agriculture, and the growth of urban populations, transforming social and economic structures worldwide.
+The Industrial Revolution, which began in Britain in the late 18th century and spread to other parts of Europe and the world in the 19th century, transformed economies through mechanized production and urbanization.
