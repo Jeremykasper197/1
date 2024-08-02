@@ -1,1 +1,1 @@
-The Industrial Revolution, which began in Britain in the late 18th century and spread to other parts of Europe and the world in the 19th century, transformed economies through mechanized production and urbanization.
+The economic theories of mercantilism dominated European economic thought in the 17th century, advocating for state intervention in the economy to promote national wealth and power.
